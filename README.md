@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @breylenwilliams
-- 👀 I’m interested in ...sports
+- 👀 I’m interested in ...sports and school work
 - 🌱 I’m currently learning ...6th grade things
 - 💞️ I’m looking to collaborate on ... my life
 - 📫 How to reach me ...?
